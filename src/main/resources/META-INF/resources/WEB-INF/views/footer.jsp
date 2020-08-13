@@ -1,0 +1,1 @@
+<h2>All rights reserved @ Depertment of ICT</h2>
